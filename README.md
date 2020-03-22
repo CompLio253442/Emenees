@@ -1,0 +1,2 @@
+# Emenees
+Kabus gibi çöker
